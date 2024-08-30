@@ -1,3 +1,5 @@
+![IMG_8046](https://github.com/user-attachments/assets/54501be1-ad30-4148-b94e-281ade1aef72)
+
 # 2024-2_Seminar
 2024년 2학기 정기 세션 및 실습 기록입니다.
 
